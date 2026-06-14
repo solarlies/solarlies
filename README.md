@@ -1,1 +1,5 @@
-i need to stop changing my username FUCK
+WHERE THE FUCK ARE HER EYEBROWS AND WRINKLES
+
+![ok](https://cdn.discordapp.com/attachments/1257963356028010608/1515727540994703511/IMG_8804.png?ex=6a300ec6&is=6a2ebd46&hm=7ed29c0b53f2b87e40399d0092d265d7f1866352a075e015fc144874b4eac604&)
+
+![ok](https://cdn.discordapp.com/attachments/1257963356028010608/1515727541464338472/IMG_8803.png?ex=6a300ec6&is=6a2ebd46&hm=fdc64fa5135e6f0b3b2c7ce39c30ec3421fc398fbc17ab558c79cb6c75f74970&)
